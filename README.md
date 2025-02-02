@@ -8,5 +8,6 @@ im also interested in traveling n exploring new places .im always trying to seek
 if you're curious about my personality type, I’m an INTJ
 Fun facts about me: there's allot, but let's get to know each other first.
 
-book that i suggest :
+book that i suggest :the silent patient.
+
 here's my Spotify link:https://open.spotify.com/user/31t7emnmowtb4ze54prn4moa66lu?si=75B_rHbfTdWH914Dvs2T-A
